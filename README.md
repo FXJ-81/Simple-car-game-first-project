@@ -1,1 +1,1 @@
-Hey, JUst me testing things out!
+Hey, just me testing things out!
